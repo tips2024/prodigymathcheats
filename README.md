@@ -76,7 +76,7 @@ One of the biggest risks when using hacks in Prodigy Math is the possibility of 
 
 ### **Corrupted Data**
 
-Using certain hacks irresponsibly can lead to corrupted account data, which may result in an account being unusable. This is why many hacking communities advise players to always use a secondary account【7†source】.
+Using certain hacks irresponsibly can lead to corrupted account data, which may result in an account being unusable. This is why many hacking communities advise players to always use a secondary account.
 
 ### **Legal Implications**
 
